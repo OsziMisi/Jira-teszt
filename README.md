@@ -1,2 +1,4 @@
 # Jira-teszt
 Ez egy teszt lessssssssssssz mert mier ne??????????
+khasjhc xhjabbmjyxc kj
+fxbfbn
